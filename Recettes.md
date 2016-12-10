@@ -2,9 +2,7 @@
 Comment mettre en place une Aire Marine Protégée Communautaire ?
 
 
-14 ans d'expérience
-
-https://keurbamboung.wordpress.com/
+Une expérience vieille de 14 ans :  https://keurbamboung.wordpress.com/
 
 Keur Bamboung est un campement écologique qui se trouve sur l’ile isolée et magique de Sipro, dans le Delta de Sine Saloum, près de Toubacouta. Elle a été conçue dans le but de permettre à ses invites de profiter de la beauté et de la nature du delta, sans nuire à l’environnement.
 
